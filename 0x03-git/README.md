@@ -1,1 +1,1 @@
-engenering cool
+Starting to code today, so cool
